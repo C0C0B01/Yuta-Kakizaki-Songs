@@ -61,8 +61,11 @@ https://youtu.be/WUTcw_SfVAY
 Culling!
 https://youtu.be/CLAYLatSvrM
 
-farewell waltz
+farewell waltz (delisted version)
 https://youtu.be/rmfETqqAh4w
+
+farewell waltz
+https://youtu.be/LvS-OIDRs7U
 
 maybe!
 https://youtu.be/YSNVJ7wb1CI
