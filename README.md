@@ -200,3 +200,6 @@ https://youtube.com/shorts/R7CuDhHiTRQ
 
 Mayoi Oni
 https://youtube.com/shorts/fAmEYQTZEPM
+
+probably! hatsune miku
+https://youtu.be/bYBMUDTmX5M
