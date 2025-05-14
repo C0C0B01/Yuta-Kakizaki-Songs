@@ -13,6 +13,9 @@ https://youtu.be/IbF9AOcLVLk
 like an idiot
 https://youtu.be/LnSZ_er6Lvk
 
+like an idiot miku version
+https://youtu.be/cPD1Nr25RZE
+
 instant death
 https://youtu.be/iTpjocY42ag
 
