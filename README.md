@@ -212,3 +212,6 @@ https://youtube.com/shorts/fAmEYQTZEPM
 
 probably! hatsune miku
 https://youtu.be/bYBMUDTmX5M
+
+like an idiot hatsune miku
+https://youtu.be/GKqYj02PASs
