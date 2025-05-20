@@ -213,7 +213,7 @@ https://youtube.com/shorts/fAmEYQTZEPM
 probably! hatsune miku
 https://youtu.be/bYBMUDTmX5M
 
-like an idiot hatsune miku
+instant death hatsune miku
 https://youtu.be/GKqYj02PASs
 
 Underground hatsune miku
