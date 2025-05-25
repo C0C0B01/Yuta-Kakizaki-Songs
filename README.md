@@ -218,3 +218,6 @@ https://youtu.be/GKqYj02PASs
 
 Underground hatsune miku
 https://youtu.be/loVNMBY7eXA
+
+I just want to be loved miku version
+https://youtu.be/vFdPkGV6brA
