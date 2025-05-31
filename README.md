@@ -1,6 +1,9 @@
 It's Tokyo
 https://youtu.be/72nap9e6DyQ
 
+It's Tokyo Miku Version
+https://youtu.be/s0H70aqeePw
+
 I want to be invisible
 https://youtu.be/1yHIfMX3-Bg
 
