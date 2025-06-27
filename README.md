@@ -118,7 +118,10 @@ Satellite
 The dream continues
 https://www.instagram.com/reel/C6ygQQyvdjd/?igsh=MTR4aDc5cGhpanFlcg==
 
-Ghost
+Become a Ghost
+https://vm.tiktok.com/ZNdyXpodP/
+
+Ghost (old Become a Ghost)
 https://youtube.com/shorts/n6I94kR2p_g
 
 Magic
