@@ -224,3 +224,6 @@ https://youtu.be/loVNMBY7eXA
 
 I just want to be loved miku version
 https://youtu.be/vFdPkGV6brA
+
+like an idiot remix
+https://vm.tiktok.com/ZNdmFbrP5/
