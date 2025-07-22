@@ -232,3 +232,6 @@ https://youtu.be/vFdPkGV6brA
 
 like an idiot remix
 https://vm.tiktok.com/ZNdmFbrP5/
+
+like an idiot slowed
+https://vm.tiktok.com/ZNdmK7aXQ/
