@@ -247,3 +247,12 @@ https://www.instagram.com/reel/DMxZNPGvOBw/?igsh=MW5vN2czdHc1ZGFtdQ==
 
 Question
 https://www.instagram.com/reel/DNakkhhPiXS/?igsh=MTl5dXR4bXFhaGp5ag==
+
+Ghost (new version???)
+https://vm.tiktok.com/ZNdp8Keya/
+
+Its Tokyo miku version
+https://vm.tiktok.com/ZNdp8WtoG/
+
+like an idiot miku version on wrong account
+https://www.instagram.com/reel/DOs-PeTj7tM/?igsh=MXg1Nnk5NDRzcTJndg==
