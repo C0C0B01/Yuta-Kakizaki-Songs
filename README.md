@@ -116,7 +116,13 @@ farewell waltz hatsune miku
 https://youtu.be/ozb71VhCNck
 
 Satellite
-(idk where link but it exists)
+https://www.tiktok.com/@kakizakiyuta/video/7484618403198553352
+
+Shiryokukensa
+https://www.tiktok.com/@kakizakiyuta/video/7436377267514690817
+
+popsicle
+https://www.tiktok.com/@kakizakiyuta/video/7433039290323488018
 
 The dream continues
 https://www.instagram.com/reel/C6ygQQyvdjd/?igsh=MTR4aDc5cGhpanFlcg==
