@@ -151,9 +151,6 @@ https://www.tiktok.com/@kakizakiyuta/video/7433039290323488018
 The dream continues
 https://www.instagram.com/reel/C6ygQQyvdjd/?igsh=MTR4aDc5cGhpanFlcg==
 
-Ghost
-https://youtube.com/shorts/n6I94kR2p_g
-
 Ghost Miku version Version
 https://sp.nicovideo.jp/watch/sm45319074?ref=nicoiphone_other&fbclid=PAQ0xDSwMWVe1leHRuA2FlbQIxMQABp9z5TC7H69MGArUmRMoLASF09QL321s-y9xTzntTRPuBJ-dmDi_rPnDzHOHb_aem_oiIBMypocTMltQkLIb1nPA&redirected=1
 
@@ -284,3 +281,6 @@ https://vm.tiktok.com/ZNdp8WtoG/
 
 like an idiot miku version on wrong account
 https://www.instagram.com/reel/DOs-PeTj7tM/?igsh=MXg1Nnk5NDRzcTJndg==
+
+ghost
+https://youtu.be/EWQTLoInV0M
