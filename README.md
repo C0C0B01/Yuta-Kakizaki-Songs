@@ -287,3 +287,6 @@ https://youtube.com/shorts/jklKi1z3ffg
 
 written by kakizaki yuta: 
 https://open.spotify.com/track/4szCibdelqTfe8XzGlBT8u
+
+escape
+Escapehttps://www.instagram.com/reel/CzL1QHrPHKc/?igsh=ZWZkM2hiMHhtMXV4
