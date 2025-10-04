@@ -284,3 +284,6 @@ https://youtube.com/shorts/ZUPZoKBbTJU
 
 Zatto
 https://youtube.com/shorts/jklKi1z3ffg
+
+written by kakizaki yuta: 
+https://open.spotify.com/track/4szCibdelqTfe8XzGlBT8u
