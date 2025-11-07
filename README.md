@@ -1,5 +1,3 @@
-Discord because why not: https://discord.gg/bGRPKNkZxh
-
 
 It's Tokyo
 https://youtu.be/72nap9e6DyQ
